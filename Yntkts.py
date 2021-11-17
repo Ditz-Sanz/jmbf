@@ -1,7 +1,7 @@
 #################################################################
-#         		ATHOUR : MR.RISKY			#
-#  		     WHATSAPP : 6283143565470			#
-#		  GITHUB : github.com/Dumai-991			#
+#         		ATHOUR : MR.ditz			#
+#  		     WHATSAPP : yntkts.    		#
+#		  GITHUB : github.com/Ditz_sanz		#
 #	       FACEBOOK : m.facebook.com/llovexnxx		#
 #################################################################
 #By Mr.Risky
